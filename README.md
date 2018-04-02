@@ -6,6 +6,6 @@
 [RainbowRainbowRainbow](https://www.reddit.com/r/CircleofTrust/comments/890v86/rainbowrainbowrainbow/)
 
 ## Discord
-https://discord.gg/2bSxxMX
+[Join](https://discord.gg/2bSxxMX)
 
 
