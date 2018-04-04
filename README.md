@@ -9,6 +9,7 @@
 
 [🌈 Rainbow Road 🌈](https://www.reddit.com/r/CircleofTrust/comments/89kj69/rainbow_road/)
 
+[🌈Rainborg-Resistance is Futile🌈](https://www.reddit.com/r/CircleofTrust/comments/89lfgu/rainborgresistance_is_futile/)
 ## Discord
 [Join](https://discord.gg/2bSxxMX)
 
